@@ -1,6 +1,6 @@
 - 👋 Hi, I'm @YinuoZou
-- 👀 I'm interested in programming.
-- 🌱 I am currently studying computer science
+- 👀 I'm interested in Art.
+- 🌱 I'm studying graphic design.
 - 💞️ I'm at the University of California, Riverside
 - 📫 Contact me at yzou049@ucr.edu
 
