@@ -1,4 +1,4 @@
-- 👋 Hi, I'm @YinuoZou
+- 👋 Hi, I'm Yinuo Zou
 - 👀 I'm interested in Art.
 - 🌱 I'm studying graphic design.
 - 💞️ I'm at the University of California, Riverside
